@@ -1,0 +1,1 @@
+# Mindera_code_challenge
